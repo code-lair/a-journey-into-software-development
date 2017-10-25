@@ -23,14 +23,16 @@ Chapter I
 =========================
 Preparing for the journey
 -------------------------
-Well this is awkward. Here I vow to myself to go on this odyssey treating it like a trip to the market. *"What happened"* you might ask. To this inquiry I will admit that I was careless. I am **not** prepared for this adventure. I want to start, but my mind is blank. Again, I can see a bottomless pit in front of me.
+I willcome you to this akward place. Here to go on this odyssey treating it like a trip to the market. *"What happened"* you might ask. To this inquiry I might anwser:*It was carelessness"* . Not beeing prepared, blank minds. An insurmountable wall appears right before ones eyes.
 
-I have no clue where to start. Also I already forgot a significant amount of my ideas. I sense this ghastly feeling of my motivation fading away, and leaving behind only displeasure.
+The Question:
+> Where does one even begin?
 
-Therefore to not falter in the face of my own inability to advance, there is a need to plan for this trip.
+Once great ideas already forgotten, a ghastly feeling of ones motivation fading away only to leave behind doubt. Therefore to not falter in the face of ones own inability to advance, there is a need to plan for this trip.
 
-First let's ask some questions about my objectives:
+One needs to calm down and ponder about possible intentions one might have for going on any journey like this.
 
-1. Where do I want to go.
-2. What do I want to see.
-3. What do I want to accomplish.
+Then write them down. Bring those ideas into the physical space. Out of imaginary planes right into reality.
+
+But what good can this course of action possibly do?
+>It can help to bind, to direct, to remind. A thought written down is like a contract with oneself. It helps to not lose faith and to reflect upon the path which was taken.
