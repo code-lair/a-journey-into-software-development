@@ -4,7 +4,7 @@ A journey into software development
 Table of Content
 ----------------
 * [Foreword](#foreword)
-* [Preparing for the journey](#preparing for the journey)
+* [Preparing for the journey](#preparing-for-the-journey)
 
 Introduction
 --------
